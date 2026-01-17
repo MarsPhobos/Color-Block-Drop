@@ -77,7 +77,7 @@ Any changes will be reflected on this page with an updated date.
 
 If you have any questions or concerns about this Privacy Policy, you can contact us at:
 
-**Email:** [your-email@example.com](mailto:your-email@example.com)
+**Email:** marsphobos72@gmail.com
 
 ---
 
